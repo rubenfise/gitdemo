@@ -7,5 +7,3 @@ This is teh first file in this repo.
 snkdnjsa  snjwnjqa bsjn<ja hbsjn sxjxsbnk
 
 skdncwj q
-xsjnxakmska,
-xsnskl
