@@ -4,6 +4,4 @@ This is teh first file in this repo.
 
 ## Ipsum Below
 
-snkdnjsa  snjwnjqa bsjn<ja hbsjn sxjxsbnk
-
-skdncwj q
+Here are new files in the website
